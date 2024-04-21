@@ -1,4 +1,4 @@
-👋 Hi, I’m @MonkehJim & I'm an apprentice at Airbus Defence and Space UK
+👋 Hi, I’m @MonkehJim & I'm a 2ND Year Apprentice at Airbus Defence and Space UK
 
 👀 I’m interested in ...
 - Aerospace and Coding Projects relating to video games and DIY Electronics :-)
